@@ -1,2 +1,1 @@
-# prince0.github.io
-# Prince Chopra
+# prince0.github.ioPrince Chopra
